@@ -1,4 +1,4 @@
-No Instraction included IT is easy to use 
+No Instructions are included because it is easy to use.
 
-Best of luck 
+Best of luck
 
